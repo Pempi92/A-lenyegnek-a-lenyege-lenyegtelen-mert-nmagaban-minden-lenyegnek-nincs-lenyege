@@ -1,1 +1,1 @@
-# A-lenyegnek-a-lenyege-lenyegtelen-mert-nmagaban-minden-lenyegnek-nincs-lenyege
+# A-lenyegnek-a-lenyege-lenyegtelen-mert-önmagaban-minden-lenyegnek-nincs-lenyege
